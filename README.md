@@ -7,4 +7,6 @@ Besides that;
 - born '9️⃣9️⃣ in the ✨ Schnitzel kingdom ✨ (austria btw.)
 - loves bikes 🏍️
 - loves skiing ⛷️
+- kinda crazy for photography 📸
+- would literally die for fluffy cats 😺
 - obviously loves coding 👨‍💻
